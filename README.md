@@ -2,6 +2,8 @@
 - 👀 I’m interested in anything and everything Disney & computer science!
 - 🌱 I’m currently learning Python and JavaScript.
 - 📫 How to reach me: passenger pigeon. only.
+- 👯 I’m looking to collaborate on stuff and things
+- 💬 Ask me about life
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love rock climbing!
 
